@@ -1,2 +1,2 @@
 
-<img src="https://user-images.githubusercontent.com/96471079/151043917-adc11d30-90be-403b-9fb3-d7aa7cfafc40.png" width="100%">
+<img src="https://gbcdn.mrgcdn.ru/uploads/post/1215/og_cover_image/9ad308e67a8808925cf3cefc90497fe5" width="100%">
